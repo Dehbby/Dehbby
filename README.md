@@ -7,4 +7,4 @@
 -🦇 **Tenho bastante interesse na área de T.I*
 -🐈‍⬛ _Se quiser entrar em contato comigo_⛓️
 s.debora28@escola.pr.gov.br
-![](https://tenor.com/pt-BR/view/lili-tekken-tekken8-tekken-8-beautiful-girl-gif-17311489039675806575)
+![](https://itunes.apple.com/app/apple-store/id917932200?pt=39040802&ct=Media1GIFV2&mt=8)
